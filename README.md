@@ -8,7 +8,7 @@ By ItaValentine(aka @WannaLive)
 -----
 ## Rings  
 By Frqastar
-
+<i>Fang Haoyu, if you SEE this, PLEASE UPDATE YOUR NOVEL NOW!!</i>
 
 -----
 ## Sins of Nothing  
