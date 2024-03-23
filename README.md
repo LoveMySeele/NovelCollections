@@ -7,7 +7,7 @@ By ItaValentine(aka @WannaLive)
 
 -----
 ## Rings  
-By Frqastar
+By Frqastar  
 <i>Fang Haoyu, if you SEE this, PLEASE UPDATE YOUR NOVEL NOW!!</i>
 
 -----
