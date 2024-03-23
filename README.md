@@ -5,7 +5,7 @@ Especially record for our senior years.
 ## Seht, die Sonne!  
 By ItaValentine(aka @WannaLive)  
 
-[Seht, die Sonne!](https://github.com/LoveMySeele/NovelCollections.wiki.git)  
+[Seht, die Sonne!](https://github.com/LoveMySeele/NovelCollections/wiki)  
 
 -----
 ## Rings  
